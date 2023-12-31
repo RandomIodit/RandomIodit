@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @RandomIodit
+- 👀 I’m interested in incrementals
+- 🌱 I’m currently learning how to make game on website called galaxy(check it out)
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me purple_stingray on discord and samray1693@gmail.com for gmail
